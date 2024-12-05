@@ -12,9 +12,9 @@
 ### 🌐 **快速访问入口**  
 快速链接直达您所需的资源页面，便捷的访问方式让您随时享受最新内容！  
 
-- ❤️ 最新发布页：https://聚合仓库.dizhi77.top
-- ❤️ 官方网站：https://app.dizhi77.top 
-- ❤️ [备用地址](https://官网.dizhi77.top/)  
+- ❤️ 最新发布页：https://聚合仓库.dizhi88.top
+- ❤️ 官方网站：https://app.dizhi88.top 
+- ❤️ [备用地址](https://官网.dizhi88.top/)  
 - **永久更新页面**：https://wangjidizhi.com  
 
 📧 **如上述链接无法访问**  
